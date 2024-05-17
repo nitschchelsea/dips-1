@@ -7,3 +7,8 @@ onion
 
 Instructions:
 Mix all ingredients
+- cut and mash avocados
+- chop onion
+- squeeze lime
+- add salt
+- and mix well
